@@ -1,0 +1,1 @@
+# razem-dla-koszalina-privacy
